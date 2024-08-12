@@ -1,5 +1,5 @@
 ## Maple
 
-What is Osu MAPLEMAPPER hack? Well this is better relax & timewarp. Its undetected so you can use it how much you want without get ban. When you use timewarps and other people watching your replay they see it as normal time but you see it in slowmo :). What about relax? Well relax is perfect, no missclicks. 
+## 大須MAPLEハックとは？まあ、これはリラックス＆タイムワープの方が良いです。検出されないので、禁止されることなく好きなだけ使用できます。あなたがタイムワープを使用し、他の人があなたのリプレイを見ているとき、彼らはそれを通常の時間として見ますが、あなたはそれをスローモーションで見ます:)。リラックスするのはどうでしょうか？まあ、リラックスは完璧です、ミスクリックはありません。 
 
-![image](https://github.com/Aistancen/MAPLEMAPPER/assets/166152475/6081f0c5-cf79-4f4a-9383-e039693d95ad)
+![image](https://github.com/user-attachments/assets/5fd7aa35-1070-4da1-92e9-5de49ba9b322)
